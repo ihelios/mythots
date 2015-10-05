@@ -1,2 +1,6 @@
 # mythots
-thought for the day
+mythical thoughts
+
+---------------------------------------------------------
+
+Cutomize yourself!!!
